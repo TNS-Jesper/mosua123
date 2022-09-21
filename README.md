@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mosua123
+- 👋 Hi, I’m @mosua123 aka TNS | Jesper or Jesper :D
 - 👀 I’m interested in Playing VIDEO GAMES and Programming
 - 🌱 I’m currently learning JAVA, JAVASCRIPT and OTHER
 - 📫 How to reach me on ts.the-networks.tk or the-networks.tk and dc.the-networks.tk
